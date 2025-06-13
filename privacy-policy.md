@@ -57,4 +57,4 @@ If you have any questions or suggestions about our Privacy Policy, do not hesita
 
 Email: mustafayildirim@gmail.com
 
-This privacy policy was last updated on May 22, 2025. 
+This privacy policy was last updated on May 22, 2025.  
